@@ -1,4 +1,4 @@
-# Pacheco-Longo-2025
+# Pacheco-Longo-2026
 1. TITLE OF THE STUDY: 
 #Habitat-driven differences in coral resistance to thermal stress in Northeastern Brazil  
 
